@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @GWleeJp
-- 👀 I’m work in MidasIT Japan
+- 👀 I’m working in MidasIT Japan
